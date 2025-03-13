@@ -6,7 +6,7 @@ description: Katrina is an experienced Health and Wellness Practitioner offering
 showonlyimage: false
 draft: false
 date: "2020"
-weight: 2
+weight: 3
 ---
 Divine Health & Wellness is a calm and peaceful space in North Ruislip where clients can escape the hustle and bustle of everyday life, quieten their minds and allow their bodies to descend into deep relaxation. Founder Katrina Evans is an award-winning Complementary Practitioner who uses a holistic approach to adult and child health and wellbeing through natural therapies and mindfulness.
 
