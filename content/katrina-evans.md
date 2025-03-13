@@ -1,5 +1,5 @@
 ---
-title: "Katrina Evans "
+title: Katrina Evans - Divine Health & Wellness
 image: /img/65ff7faf-3ae3-46ac-b8e2-f9203f6b435f.jpg
 description: Katrina is an experienced Health and Wellness Practitioner offering
   a unique wellbeing service from her tranquil treatment room in Ruislip.
