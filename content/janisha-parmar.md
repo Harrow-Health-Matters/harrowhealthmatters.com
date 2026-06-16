@@ -21,5 +21,5 @@ She is passionate about supporting people who have spent years being strong for 
 Contact details:
 **www.zenergybyjanisha.com**
 
-**hello@zenergybyjanisha.com
-07974204833**
+**hello@zenergybyjanisha.com**\
+**07974204833**
