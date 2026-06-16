@@ -1,10 +1,10 @@
 ---
 title: The Late Jill Swyers - Living Foods for Health
 image: img/jill_swyers.jpg
-description: Jill worked in the food industry for more than 40 years, having
+description: "Jill worked in the food industry for more than 40 years, having
   worked in hotels, restaurants and events catering in various countries round
   the world, as well as running her own successful London-based catering
-  company.
+  company. "
 showonlyimage: false
 draft: false
 date: "2020"
