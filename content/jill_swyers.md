@@ -10,18 +10,10 @@ draft: false
 date: "2020"
 weight: 3
 ---
-**We have left Jills profile here in memory of her.**\
+##### **We have left Jills profile here in memory of her.**\
 \
 Jill worked in the food industry for more than 40 years, having worked in hotels, restaurants and events catering in various countries round the world, as well as running her own successful London-based catering company.
 
-She is a qualified Hippocrates Health Educator since 1998, and currently teaches and demonstrates the preparation of PlantBased Living Foods with a Balance of Nutrition.
+She was a qualified Hippocrates Health Educator since 1998, and taught and demonstrated the preparation of PlantBased Living Foods with a Balance of Nutrition. 
 
-As a Teacher, Consultant and Chef, Jill's main priority is Food Literacy – just because it is PlantBased does not necessarily mean it is healthy. Understanding Nutrition is key to eating well. By adding to one's lifestyle One Step at a Time with Guidance, and linking that to a Balance of Nutrition we can nourish both mind and body.
-
-If you are looking for a wholefood plant-based nutritionist, can get in touch with Jill through the following ways:
-
-* Personal Facebook link: [www.facebook.com/jill.swyers.1](https://www.facebook.com/jill.swyers.1)
-* Business Facebook link: [www.facebook.com/JillSwyers/](https://www.facebook.com/JillSwyers/)
-* Twitter: [@JillSwyers](https://twitter.com/JillSwyers)
-* LinkedIn: [jill-swyers-livingfoodsforhealth](https://uk.linkedin.com/in/jill-swyers-livingfoodsforhealth)
-* Website: [www.jillswyers.com](https://www.jillswyers.com/)
+As a Teacher, Consultant and Chef, Jill's main priority was Food Literacy – just because it is PlantBased does not necessarily mean it is healthy. Understanding Nutrition is key to eating well. By adding to one's lifestyle One Step at a Time with Guidance, and linking that to a Balance of Nutrition we can nourish both mind and body.
