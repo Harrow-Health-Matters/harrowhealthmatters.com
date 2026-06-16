@@ -1,7 +1,7 @@
 ---
-title: Jill Swyers - Living Foods for Health
+title: The Late Jill Swyers - Living Foods for Health
 image: img/jill_swyers.jpg
-description: Jill has worked in the food industry for more than 40 years, having
+description: Jill worked in the food industry for more than 40 years, having
   worked in hotels, restaurants and events catering in various countries round
   the world, as well as running her own successful London-based catering
   company.
@@ -10,7 +10,9 @@ draft: false
 date: "2020"
 weight: 3
 ---
-Jill has worked in the food industry for more than 40 years, having worked in hotels, restaurants and events catering in various countries round the world, as well as running her own successful London-based catering company.
+**We have left Jills profile here in memory of her.**\
+\
+Jill worked in the food industry for more than 40 years, having worked in hotels, restaurants and events catering in various countries round the world, as well as running her own successful London-based catering company.
 
 She is a qualified Hippocrates Health Educator since 1998, and currently teaches and demonstrates the preparation of PlantBased Living Foods with a Balance of Nutrition.
 
