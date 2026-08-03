@@ -1,8 +1,9 @@
 ---
 title: "Varsha Soneji BSc (Hons) MNIMH - Medical Herbalist "
 image: img/vhm.jpg
-description: Varsha is a Medical Herbalist with over 31 years of experience in
-  the field of complementary medicine and a degree in Herbal Medicine
+description: "Varsha Soneji is a qualified Medical Herbalist with over 36 years
+  of experience.  She has a special interest in supporting women and children
+  with their health concerns.  "
 showonlyimage: false
 draft: false
 date: "2020"
@@ -12,7 +13,7 @@ weight: 1
 
 **Varsha Soneji - Medical Herbalist** 
 
-Varsha Soneji is a qualified Medical Herbalist with over 36 years of clinical experience, combining the principles of Western, Ayurvedic, and Traditional Chinese herbal medicine to help individuals achieve lasting health and wellbeing.
+Varsha Soneji is a qualified Medical Herbalist with over 36 years of experience, combining the principles of Western, Ayurvedic, and Traditional Chinese herbal medicine to help individuals achieve lasting health and wellbeing.
 
 She has a particular interest in supporting women through every stage of life, with expertise in PMT, PCOS, fertility, perimenopause, and menopause. She also works extensively with skin conditions such as eczema and acne, as well as children’s health concerns, including asthma, anxiety, and growth and developmental challenges.
 
