@@ -1,5 +1,6 @@
 ---
-title: "Janisha Parmar "
+title: Janisha Parmar - Mental Fitness & Clarity Coach, Psychotherapy Pranic
+  Energy Healer and Nervous System Regulation Expert
 image: /img/janisha-parmar-standing-.jpeg
 description: Janisha Parmar is a Mental Fitness & Clarity Coach helping
   high-functioning adults and teens who feel overwhelmed, anxious, emotionally
