@@ -10,16 +10,23 @@ weight: 1
 ---
 ![](/img/vhm.jpg)
 
-Varsha is a **Medical Herbalist** with over 31 years of experience in the field of complementary medicine and a degree in Herbal Medicine. She has vast knowledge of:
+**Varsha Soneji - Medical Herbalist** 
 
-* Western Herbs
-* Indian and Ayurvedic Herbs
-* Chinese Herbs
+Varsha Soneji is a qualified Medical Herbalist with over 36 years of clinical experience, combining the principles of Western, Ayurvedic, and Traditional Chinese herbal medicine to help individuals achieve lasting health and wellbeing.
+
+She has a particular interest in supporting women through every stage of life, with expertise in PMT, PCOS, fertility, perimenopause, and menopause. She also works extensively with skin conditions such as eczema and acne, as well as children’s health concerns, including asthma, anxiety, and growth and developmental challenges.
+
+Varsha believes that every person is unique. Rather than simply treating symptoms, she takes the time to understand the underlying causes of ill health, creating personalised treatment plans that may include herbal medicine, nutritional guidance, lifestyle recommendations, targeted supplementation, and counselling. Her holistic approach complements conventional medical care, working alongside it to provide the best possible outcomes.
+
+Known for her compassionate and attentive approach, Varsha supports people who often feel unheard, overwhelmed, or frustrated by ongoing health challenges. She empowers her patients with practical, natural solutions that restore balance, build resilience, and promote long-term wellbeing.
+
+Consultations are available both in person and online, making expert herbal healthcare accessible wherever you are.
+
+Whether you are seeking support for a specific health concern or looking to improve your overall wellbeing, Varsha welcomes the opportunity to work with you on your journey to better health.
 
 Varsha’s knowledge of these 3 areas of herbalism, is combined to maximise the benefits of the phytochemicals (natural plant chemicals) that nature has given to us packaged as beautiful plants.
 
-
-She offers private health consultations in her Stanmore clinic and via video. You can book a free discovery call with her to find out about how she could help you with your health. She works holistically from the perspective of mind, body and spirit; looking at diet, lifestyle and other things that impact health. She may send you for biochemical or stool tests and scans as necessary to give you the best care possible. Sometimes she will refer you to other experts if required and recommend supplements if there are deficiencies to address.
+You can book a free discovery call with her to find out about how she could help you with your health. 
 
 **Harrow Health Matters was founded by Varsha** to support her community to get well and stay well.\
 You can connect with Varsha in several ways: 
