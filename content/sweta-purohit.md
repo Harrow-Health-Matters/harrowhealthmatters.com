@@ -1,15 +1,15 @@
 ---
-title: Sweta Purohit
+title: Sweta Purohit - Founder, The Sweta Way MMT Framework | Subconscious Mind
+  Reprogramming, Somatic Embodiment & Energy Healing Practitioner
 image: /img/whatsapp-image-2026-08-04-at-7.28.41 pm.jpeg
-description: "Founder The Sweta Way MMT Framework. Mind. Somatics. Energy .|
-  Subconscious Mind Reprogramming  | Somatic Embodiment | Energy Healing
-  Practitioner. "
+description: Founder, The Sweta Way MMT Framework | Subconscious Mind
+  Reprogramming, Somatic Embodiment & Energy Healing Practitioner
 showonlyimage: false
 draft: false
 date: "2020"
 weight: 3
 ---
-Sweta Purohit is the founder of The Sweta Way MMT Framework, specialising in helping people who feel stuck or at a crossroads in their life, career, business or relationships to heal and overcome challenges, break free from repeating patterns, reconnect with their inner wisdom, and lead with confidence, soul-aligned direction and purposeful vision.
+Sweta Purohit is the founder of The Sweta Way MMT Framework, helping people who feel stuck or at life’s crossroads heal and overcome challenges, ignite their inner wisdom and creative solutions, and lead with confidence, soul-aligned direction and purposeful vision through an integrated mind, body and energy approach.
 
 Her unique approach integrates the subconscious mind, somatic body and energy together in real time for real shifts, recognising that lasting transformation happens when all three work together. By combining subconscious transformation, somatic embodiment and energy healing, Sweta helps people regulate their nervous system, transform unconscious patterns, release emotional and energetic blocks, and unlock fresh perspectives and creative solutions that create meaningful, lasting change.
 
