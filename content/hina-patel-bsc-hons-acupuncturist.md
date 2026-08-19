@@ -1,5 +1,5 @@
 ---
-title: Hina Patel BSc (Hons) Acupuncturist
+title: Hina Patel BSc (Hons) Acupuncturist (CLICK HERE)
 image: /img/hina-patel-acupuncture-colour-light-grey-background.png
 description: "Hina is a licensed acupuncturist with a BSc (Hons) Degree in
   Acupuncture from the highly respected College of Integrated Chinese Medicine
