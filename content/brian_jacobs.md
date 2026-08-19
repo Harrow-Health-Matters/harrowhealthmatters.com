@@ -17,5 +17,7 @@ He holds the Senior Qualification in Hypnotherapy Practice (SQHP) from the Gener
 Brian was originally trained in Neuro-Linguistic Programming (NLP) by Paul McKenna and Dr Richard Bandler before going on to train extensively in hypnotherapy. He uses an integrative approach, drawing on hypnotherapy, NLP and other techniques to tailor his work to each individual.
 
 His aim is simple: to help clients achieve meaningful and lasting change as effectively and efficiently as possible.
+
+
 https://www.hypnoticsolutions.co.uk
 https://www.facebook.com/HypnoticSolutions/
