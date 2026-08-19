@@ -1,5 +1,5 @@
 ---
-title: Zhijun Wang
+title: Zhijun Wang (CLICK HERE)
 image: /img/profile-photo.jpg
 description: "Tai Chi for Better Health Instructor "
 showonlyimage: false
