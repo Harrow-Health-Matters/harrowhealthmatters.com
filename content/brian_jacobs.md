@@ -1,5 +1,5 @@
 ---
-title: Brian Jacobs - Hypnotherapist
+title: Brian Jacobs - Hypnotherapist (CLICK HERE)
 image: /img/whatsapp-image-2026-08-04-at-8.22.25 am.jpeg
 description: Brian Jacobs is a registered clinical hypnotherapist, as well as a
   hypnotherapy trainer.
