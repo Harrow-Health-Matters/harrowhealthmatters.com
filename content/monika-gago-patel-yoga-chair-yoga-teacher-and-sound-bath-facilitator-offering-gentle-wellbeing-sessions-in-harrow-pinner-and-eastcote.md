@@ -1,6 +1,7 @@
 ---
-title: "Monika Gago-Patel - Yoga, Chair Yoga Teacher and Sound Bath Facilitator
-  offering gentle wellbeing sessions in Harrow, Pinner and Eastcote.  "
+title: Monika Gago-Patel - Yoga, Chair Yoga Teacher and Sound Bath Facilitator
+  offering gentle wellbeing sessions in Harrow, Pinner and Eastcote. (CLICK
+  HERE)
 image: /img/whatsapp-image-2026-06-02-at-10.30.59 am.jpeg
 description: Specialises in helping women reduce stress, improve strength and
   mobility, and create space for rest through yoga, relaxation and sound.
