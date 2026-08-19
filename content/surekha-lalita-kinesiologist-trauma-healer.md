@@ -1,5 +1,5 @@
 ---
-title: "Surekha Lalita- Kinesiologist / Trauma Healer "
+title: Surekha Lalita- Kinesiologist / Trauma Healer (CLICK HERE)
 image: /img/whatsapp-image-2026-08-19-at-9.14.03 pm.jpeg
 description: Qualified Kinesiologist and expert in Trauma Healing - breaking
   generational and past life patterns and cycles that have kept you stuck so you
