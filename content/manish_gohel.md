@@ -1,6 +1,6 @@
 ---
 title: Manish Gohel - Master NLP Practitioner, Trainer, Coach, Yoga Instructor
-  and Reiki Master
+  and Reiki Master (CLICK HERE)
 image: img/manish_gohel.jpg
 description: Manish is a highly experienced and knowledgeable Coach. His passion
   is to provide the very best for his clients
