@@ -20,4 +20,6 @@ Alongside one-to-one sessions, I also teach Reiki to adults and children and del
 
 My aim is simple: to help people feel calmer, more connected to themselves and better supported in their everyday wellbeing.\
 \
-E﻿mail:  [binjudodhia@gmail.com](mailto:binjudodhia@gmail.com)
+E﻿mail me:  [binjudodhia@gmail.com](mailto:binjudodhia@gmail.com)\
+C﻿all me:  07748515282 \
+Follow me: https://www.instagram.com/holisticharmony_binju
