@@ -1,5 +1,5 @@
 ---
-title: Varsha Soneji BSc (Hons) MNIMH - Medical Herbalist CLICK HERE!
+title: Varsha Soneji BSc (Hons) MNIMH - Medical Herbalist (CLICK HERE)
 image: img/vhm.jpg
 description: "Varsha Soneji is a qualified Medical Herbalist with over 36 years
   of experience.  She has a special interest in supporting women and children
