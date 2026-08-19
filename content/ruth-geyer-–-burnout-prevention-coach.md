@@ -1,5 +1,5 @@
 ---
-title: Ruth Geyer – Burnout Prevention Coach
+title: Ruth Geyer – Burnout Prevention Coach (CLICK HERE)
 image: /img/image-06-08-2026-at-5.49 pm.png
 description: After two decades in the corporate world and my own experience of
   burnout, I now support individuals in preventing burnout, building resilience,
