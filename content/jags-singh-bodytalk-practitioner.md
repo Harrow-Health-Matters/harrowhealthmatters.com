@@ -1,5 +1,5 @@
 ---
-title: Jags Singh - BodyTalk Practitioner
+title: Jags Singh - BodyTalk Practitioner (CLICK HERE)
 image: /img/img-20251020-wa0001.jpg
 description: Certified BodyTalk Practitioner based in North London and works
   with Clients in-person and Worldwide
