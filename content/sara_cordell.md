@@ -1,5 +1,6 @@
 ---
-title: SARA CORDELL  CLINICAL & REMEDIAL MASSAGE THERAPIST,  AROMATHERAPIST AND HEALER
+title: SARA CORDELL  CLINICAL & REMEDIAL MASSAGE THERAPIST,  AROMATHERAPIST AND
+  HEALER (CLICK HERE)
 image: /img/sara-cordell.jpg
 description: Sara qualified as a licenced massage therapist and aromatherapist
   in 1996 when she realised her calling in life and started on her journey to
