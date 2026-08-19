@@ -1,5 +1,5 @@
 ---
-title: Nirmala Iyer
+title: Nirmala Iyer (CLICK HERE)
 image: img/nirmala_iyer.jpg
 description: I started my Yoga Journey a little over a decade ago and after 4
   years of practicing as a student, I wanted to deepen my understanding of Yoga
