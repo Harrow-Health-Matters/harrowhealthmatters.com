@@ -10,14 +10,14 @@ draft: false
 date: "2020"
 weight: 3
 ---
-I help exhausted women come home to themselves, and I support children too, with sessions for when they’re feeling off, hyperactive, or just down.\
-\
-35 years ago I started a personal Reiki practice. A few years later, I moved countries as a young woman with no family nearby, and that practice became the thing that held me steady while I rebuilt my life from scratch.\
-\
-That experience shapes everything I do now. At Holistic Harmony with Binju, I work with women who are running on empty and disconnected from their own bodies. I also see children, offering Reiki when they’re struggling to settle, or just not themselves. I’m a Reiki Master Teacher trained across multiple lineages, alongside Access Consciousness, kinesiology, reflexology, yoga and pranic healing.\
-\
-I don’t treat labels. I support the whole system so the body can do what it already knows how to do: heal.\
-\
-If you’re craving permission to slow down, or your child needs a little extra calm, let’s connect.\
+I am a Reiki Master Teacher with over 35 years of experience in energy healing, supporting adults and children through a personalised and intuitive approach to wellbeing.
+
+My work brings together Traditional Usui Reiki, Angelic Reiki and Violet Flame Reiki, alongside carefully selected essential oils. Rather than offering one fixed style of treatment, I draw on these different approaches according to the individual and what may best support them at that time.
+
+My sessions are designed to create space for deep relaxation, emotional release and greater balance, while also supporting areas such as stress, sleep, overwhelm, nervous system regulation and general wellbeing. Essential oils are incorporated to complement the energy work and add another layer of physical and emotional support.
+
+Alongside one-to-one sessions, I also teach Reiki to adults and children and deliver wellbeing talks, workshops and group experiences. My approach is gentle, nurturing and always centred around the person in front of me rather than a one-size-fits-all method.
+
+My aim is simple: to help people feel calmer, more connected to themselves and better supported in their everyday wellbeing.\
 \
 E﻿mail:  [binjudodhia@gmail.com](mailto:binjudodhia@gmail.com)
