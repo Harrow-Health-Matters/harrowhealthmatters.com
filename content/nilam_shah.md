@@ -1,5 +1,5 @@
 ---
-title: "Nilam Shah - Holistic Therapist "
+title: Nilam Shah - Holistic Therapist (CLICK HERE)
 image: img/nilam_shah.jpg
 description: Nilam Shah, of NR Holistic Therapies, is an experienced
   Reflexologist (Bailey School of Reflexology) and a Reiki Master. She uses a
