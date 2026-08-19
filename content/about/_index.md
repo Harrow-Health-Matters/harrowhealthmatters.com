@@ -27,7 +27,9 @@ Since lockdown due to Coronavirus, we have grown due to the increased use of dig
 
 ## Mission Statement
 
-Harrow Health Matters will always have your best health interests at heart and will collaborate with other health, wellbeing and fitness professionals and experts to support our Community.
+Harrow Health Matters will always have your best health interests at heart and will collaborate with other health, wellbeing and fitness professionals and experts to support our Community.\
+\
+**C﻿LICK ON EACH PRACTITIONER TO LEARN MORE AND FIND CONTACT DETAILS** 
 
 ## Would you like to participate?
 
