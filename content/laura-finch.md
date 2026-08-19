@@ -1,5 +1,5 @@
 ---
-title: Laura Finch
+title: Laura Finch (CLICK HERE)
 image: /img/58419431_10156628630673218_5368804455389069312_n.jpg
 description: "Laura Finch:  Bowen Therapist, Yoga Teacher, Scar Work,  Bone
   Work, Energy healing, Lymphatic drainage, Animal Communication."
