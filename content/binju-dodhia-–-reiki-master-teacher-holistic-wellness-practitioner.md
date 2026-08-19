@@ -1,5 +1,6 @@
 ---
 title: BINJU DODHIA – REIKI MASTER TEACHER & HOLISTIC WELLNESS PRACTITIONER
+  (CLICK HERE)
 image: /img/whatsapp-image-2026-08-19-at-11.00.41 pm.jpeg
 description: I am an experienced Reiki Master Teacher with over 35 years in
   energy healing. I intuitively combine Traditional Usui, Angelic and Violet
