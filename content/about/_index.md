@@ -8,7 +8,9 @@ _build:
 Harrow Health Matters (HHM) was founded by Varsha Soneji, Medical Herbalist, in 2017 to encourage truly holistic collaboration for the benefit of her local community in and around Harrow.\
 We bring together a variety of experts in all fields of health, wellbeing and fitness which includes mind, body, and spirit.  We are not against any modality of medicine or therapy as each has it’s place and merit as well as each person having the right to choose their preferred method of healing.\
 Oftentimes, two or more modalities can be used safely together to heal a person in a more holistic way encompassing different routes to get to the root cause of disease as well as giving symptomatic relief.\
-Since lockdown due to Coronavirus, we have grown due to the increased use of digital media and video.  Hence, we are now broadening our net to the community a little further afield such as Greater London, Milton Keynes, Hertfordshire, and Barnet.  We will not turn away anyone who is need of our services.  We will collaborate and find a way.  
+Since lockdown due to Coronavirus, we have grown due to the increased use of digital media and video.  Hence, we are now broadening our net to the community a little further afield such as Greater London, Milton Keynes, Hertfordshire, and Barnet.  We will not turn away anyone who is need of our services.  We will collaborate and find a way.  \
+\
+**C﻿LICK ON EACH PRACTITIONER TO LEARN MORE AND FIND CONTACT DETAILS** 
 
 ## Aims & Goals
 
