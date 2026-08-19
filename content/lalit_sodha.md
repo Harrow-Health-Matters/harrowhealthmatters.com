@@ -1,5 +1,5 @@
 ---
-title: Lalit Sodha - Chiropractor
+title: Lalit Sodha - Chiropractor (CLICK HERE)
 image: img/lalit_sodha.jpg
 description: With 30 years of clinical experience in private practice, and
   having treated thousands of patients, not only in the UK, but across the
