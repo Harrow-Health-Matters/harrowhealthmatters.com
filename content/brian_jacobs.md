@@ -8,11 +8,14 @@ draft: false
 date: "2020"
 weight: 3
 ---
-Brian Jacobs is a registered clinical hypnotherapist, as well as a hypnotherapy trainer. He has been in practice for 20 years and has offices in Finchley Central (in North London) as well as in Harley Street (Central London). He sees clients to help them with behavioural change (for example, help to stop smoking, control weight, stop nail biting) and emotional change (including reducing fears and anxiety, overcoming phobias, and gaining confidence).
+Brian Jacobs is a Registered Clinical Hypnotherapist with more than 25 years’ experience, helping people make positive and lasting changes to their lives. His main practice is in Finchley Central, North London, and he also sees clients in London’s West End and online.
 
-He has been awarded the Senior Qualification in Hypnotherapy Practice (SQHP) from the General Hypnotherapy Register. He has also been awarded the title Board Certified Hypnotist and Certified Master Instructor of Hypnotherapy by the National Guild of Hypnotists.
+Brian specialises in helping people overcome unwanted habits and behaviours, including stopping smoking and vaping, reducing or controlling alcohol consumption, managing weight and overcoming nail biting. He also helps clients with emotional issues such as anxiety, fears and phobias, as well as building confidence and self-belief.
 
-Brian was trained by Paul McKenna in NLP (Neuro Linguistic Programming) and he uses a combination of techniques to help his clients improve their lives in the shortest possible time.
+He holds the Senior Qualification in Hypnotherapy Practice (SQHP) from the General Hypnotherapy Register and is registered with the Complementary and Natural Healthcare Council (CNHC). He is also a Certified Master Instructor of Hypnotherapy with the National Guild of Hypnotists.
 
-* [www.hypnoticsolutions.co.uk](https://www.hypnoticsolutions.co.uk)
-* [www.facebook.com/brianmjacobs](https://www.facebook.com/brianmjacobs)
+Brian was originally trained in Neuro-Linguistic Programming (NLP) by Paul McKenna and Dr Richard Bandler before going on to train extensively in hypnotherapy. He uses an integrative approach, drawing on hypnotherapy, NLP and other techniques to tailor his work to each individual.
+
+His aim is simple: to help clients achieve meaningful and lasting change as effectively and efficiently as possible.
+https://www.hypnoticsolutions.co.uk
+https://www.facebook.com/HypnoticSolutions/
